@@ -38,7 +38,6 @@
  2. ### GameRanger
  3. ### Friends :)
 ## Stronghold 2  -v1.4
-![strongold](https://cdn.cloudflare.steamstatic.com/steam/apps/40960/extras/sh2se_3_battle.jpg?t=1635934007)
 *Stronghold 2 allows players to experience true ‘castle life’ gameplay. Entertain your subjects or rule with an iron fist, dispensing medieval justice to overworked and malnourished peasants. With powerful barons jostling for power over a disintegrating kingdom, it is up to you to stem the tides of ambition and unite the land under the one true King! With an intricate economy, siege warfare, crime and punishment systems and classic medieval events, this highly anticipated sequel to the award-winning _Stronghold_ comes packed with new additions to classic Stronghold gameplay.*
 >[DOWNLOAD](https://s1.strategicclub.ir/Games/Stronghold%202%20%5Bwww.StrategicClub.ir%5D/Stronghold%202%20%5Bwww.StrategicClub.ir%5D.rar)
 
